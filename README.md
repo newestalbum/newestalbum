@@ -1,1 +1,5 @@
-<img width="750" height="500" alt="Remmick" src="https://github.com/user-attachments/assets/25b9a75d-6a9c-4826-bf09-4743e8e53e0d" />
+<img width="1021" height="750" alt="Screenshot 2026-11-04 221737" src="https://github.com/user-attachments/assets/2de980ca-873f-4546-923c-b21a9a900ea1" />
+
+
+
+
